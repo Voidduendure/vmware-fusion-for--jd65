@@ -1,4 +1,4 @@
-
+Enhance VMware Fusion for macOS with VMware Fusion for macOS automatic Addon: junk-removal & privacy-protection, the #1 addon. Includes junk-removal and privacy-protection for a
 
 
 
